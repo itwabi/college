@@ -1,2 +1,1 @@
-# college йоу 
-мир пис 
+# college 
